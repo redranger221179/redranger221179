@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @redranger221179
+- 👀 I’m interested in video games
+- 🌱 I’m currently learning computer skills
+- 💞️ I’m looking to collaborate on coding
+- 😄 Pronouns: he him
+- ⚡ Fun fact: i am a boy
